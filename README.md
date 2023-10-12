@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **lmeush@icloud.com**
 
-- <a href="https://drive.google.com/file/d/1U6IxRoO5UEaKqf8OAUiCYTUDZHfqx382/view?usp=sharing" target="blank">📄 Know about my experiences(Polish ver.)</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
